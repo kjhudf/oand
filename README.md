@@ -1,6 +1,6 @@
 # hxc研究所官方网站
 
-<a href="https://8h9e.vip/">>>>>>>>>点/此/进/入/观/看/<<<<<<<<</a>
+<hr/> <a href="https://github.com/kjhudf/xccd/issues/1">👉👉👉♥♥点此进入♥观看入口👈👉👉</a><hr/>
 
 hxc研究所官方网站
 一般涌进丹田，在丹田之中激荡翻滚，如惊涛拍岸！
